@@ -3,22 +3,22 @@
 ### 免费球衣、免费波胆竞猜、输返、流水加码、包赔、首存等优惠福利！
 优惠福利领取请加微信：nwa2022、ctm959、ctm939<br>
 QQ：1424895325<br>
-泡泡聊天：ctm939
+泡泡聊天：ctm939 
 友情推荐码： win<br>
 
 ### 最新域名
-### [win13.cc](https://win13.cc)<br> 
+### [win13.cc](http://win13.cc)<br> 
 
-### [win13.top](https://win13.top)<br>
+### [win13.top](http://win13.top)<br>
 
-### [win133.cc](https://win133.cc)<br>
+### [win133.cc](http://win133.cc)<br>
 
-### [win03.top](https://win03.top)<br>
+### [win03.top](http://win03.top)<br>
 
-### [win08.top](https://win08.top)<br>
+### [win08.top](http://win08.top)<br>
 
 ### 中文域名
-### [朝天门.我爱你](https://朝天门.我爱你)<br>
+### [朝天门.我爱你](http://朝天门.我爱你)<br>
 
 ### 备用域名：
 ### [eii555.com/g/win](https://www.eii555.com/g/win)<br>
